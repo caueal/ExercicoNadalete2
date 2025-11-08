@@ -1,1 +1,1 @@
-Exercicios propostos no Moodel, para o mes de Novembro
+Exercicios propostos no Moodle, para o mes de Novembro
